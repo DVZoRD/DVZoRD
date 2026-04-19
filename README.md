@@ -9,7 +9,7 @@
 
 - 📄 Me siga no linkedin [https://www.linkedin.com/in/davi-crisostomo-a7b57a2bb/](https://www.linkedin.com/in/davi-crisostomo-a7b57a2bb/)
 
-- 🎓Estudo na Catolica **2023-2026**
+- 🎓Estudo na Catolica **2023-2027**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
